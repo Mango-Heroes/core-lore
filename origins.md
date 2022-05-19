@@ -29,8 +29,13 @@ So, they went off on their own paths.
 
 Crashing into our world the mangos fell in love with the culture thru any books they could find. The first of those, and seemingly their favorite, were comics.
 
+![image](https://user-images.githubusercontent.com/84951299/169353829-f70d2ea3-d5e1-40c4-9e09-1fd9d2007f7b.png)
+
 
 The magic that created them morphed, developed, and manifested itself through their own imaginations in ways that Dasheri never realized it would.
 
 And such the first of the Mango “Heroes” were The Comics after the comics they learned from and imitated. The Mango Heroes’ telekinesis materialized as more specific powers that were unique to each of them. These included flight, strength, durability, and more.
+
+![image](https://user-images.githubusercontent.com/84951299/169354092-10338675-5e3c-4b0c-a0c8-0795e89924ad.png)
+
 
